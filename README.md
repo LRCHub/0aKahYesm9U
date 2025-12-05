@@ -1,0 +1,36 @@
+# Finger 5 – 学園天国
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+「Are you ready?」
+Hey Hey Hey Hey Hey (Hey Hey Hey Hey Hey)
+Hey Hey Hey Hey Hey (Hey Hey Hey Hey Hey)
+Hey (Hey) Hey (Hey) Hey (Hey) Hey (Hey) Ah
+あいつもこいつもあの席を ただ一つねらっているんだよ
+このクラスで一番の 美人の隣りを
+あーみんなライバルさ
+あーいのちがけだよ Oh yeah yeah yeah
+運命の女神さまよ
+このぼくにほほえんで
+一度だけでも
+勉強する気もしない気も
+この時にかかっているんだよ
+もし駄目ならこのぼくは
+もうグレちまうよ
+Hey Hey Hey Hey Hey (Hey Hey Hey Hey Hey)
+Hey Hey Hey Hey Hey (Hey Hey Hey Hey Hey)
+Hey (Hey) Hey (Hey) Hey (Hey) Hey (Hey) Ah
+二枚目気どりの秀才や あのいやな悪党番長も
+胸はずませ待っている どの席になるか
+あーあの横顔を
+あーみつめられたら Oh yeah yeah yeah
+授業中天国だよ
+このぼくにしあわせを
+与えておくれ
+勉強する気もしない気も
+この時にかかっているんだよ
+もし駄目ならこのぼくは
+もうグレちまうよ
+「Thank you」
+```
